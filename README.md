@@ -1,5 +1,5 @@
 # Subraya Pai
-- Front-End Developer And Architect [LinkedIn](https://www.linkedin.com/feed/)
+- Front-End Developer And Architect [LinkedIn](https://www.linkedin.com/in/bspai/)
 - Music Production Novice
 
 ## Github projects in progress

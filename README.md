@@ -12,5 +12,3 @@
 ## Training and Courses Undergone
 - Music Production 101 from Berklee Online - Sept 2025
 - Indian Bansuri Flute Playing (8+ years)
-
-## 
